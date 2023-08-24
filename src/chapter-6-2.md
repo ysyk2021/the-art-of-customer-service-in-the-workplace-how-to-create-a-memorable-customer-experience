@@ -1,5 +1,3 @@
-Developing Strategies for Creating a Memorable Customer Experience
-======================================================================================================================
 
 To create a memorable customer experience, businesses must develop effective strategies that prioritize the needs and expectations of their customers. In this chapter, we explore how businesses can develop their customer service skills by developing strategies for creating a memorable customer experience.
 

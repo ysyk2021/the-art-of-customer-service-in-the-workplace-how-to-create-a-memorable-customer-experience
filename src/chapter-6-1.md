@@ -1,5 +1,3 @@
-Understanding the Principles of Effective Customer Service
-==============================================================================================================
 
 Delivering effective customer service requires a unique set of skills. In this chapter, we explore the principles of effective customer service and provide tips for developing your customer service skills.
 

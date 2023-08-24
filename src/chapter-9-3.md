@@ -1,5 +1,3 @@
-Fostering Accessibility and Inclusivity
-==============================================================================================
 
 In today's digital age, technology plays a critical role in delivering exceptional customer service. In this chapter, we will explore how businesses can leverage technology to foster accessibility and inclusivity in their customer service approach.
 

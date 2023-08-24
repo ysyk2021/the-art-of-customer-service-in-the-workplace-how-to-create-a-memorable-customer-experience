@@ -1,5 +1,3 @@
-Setting Realistic Goals and Objectives
-========================================================================================
 
 Developing a customer service mindset is critical for delivering exceptional customer service. In this chapter, we explore the process of setting realistic goals and objectives to help businesses achieve their customer service goals.
 

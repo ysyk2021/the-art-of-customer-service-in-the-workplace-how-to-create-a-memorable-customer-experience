@@ -1,5 +1,3 @@
-Fostering Trust and Respect
-===============================================================================
 
 In the world of customer service, building trust and respect with customers is key to creating a memorable customer experience. In this chapter, we will explore strategies for maximizing your customer service skills to foster trust and respect with your customers.
 

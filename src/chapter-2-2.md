@@ -1,5 +1,3 @@
-Understanding the Science Behind Effective Customer Service
-=================================================================================================
 
 Effective customer service is a vital component of any successful business. In this chapter, we will explore the science behind effective customer service and define what it means to provide exceptional customer service.
 

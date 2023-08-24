@@ -1,5 +1,3 @@
-Chapter 3: Developing a Customer Service Mindset
-================================================
 
 Developing a customer service mindset is critical for providing exceptional customer service. In this chapter, we will explore techniques and best practices for cultivating a customer service mindset.
 

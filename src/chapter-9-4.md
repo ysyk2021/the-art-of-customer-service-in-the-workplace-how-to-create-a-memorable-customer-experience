@@ -1,5 +1,3 @@
-Avoiding Information Overload
-====================================================================================
 
 Leveraging technology is critical for businesses looking to provide exceptional customer experiences. However, with the abundance of information available through various channels, it can be easy to overload customers with too much information. In this chapter, we will explore strategies for leveraging technology for customer service while avoiding information overload.
 

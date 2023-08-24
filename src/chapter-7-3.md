@@ -1,5 +1,3 @@
-Addressing Fear and Uncertainty
-===================================================================================
 
 Resistance to customer service can be rooted in fear and uncertainty. In this chapter, we explore how businesses can address these underlying emotions to overcome resistance and promote a culture that prioritizes exceptional customer service.
 

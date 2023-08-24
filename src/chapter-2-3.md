@@ -1,5 +1,3 @@
-Assessing Your Personal Approach to Customer Service
-==========================================================================================
 
 To provide exceptional customer service, it's essential to understand your personal approach to customer service. In this chapter, we will explore ways to assess your own customer service skills and identify areas for improvement.
 

@@ -1,5 +1,3 @@
-Identifying Opportunities for Creating a Memorable Customer Experience
-==========================================================================================================================
 
 Creating a memorable customer experience requires exceptional customer service skills. In this chapter, we explore how businesses can identify opportunities to maximize their customer service skills and create a remarkable experience for their customers.
 

@@ -1,5 +1,3 @@
-Finding Ways to Connect with Customers
-==========================================================================================
 
 To create a memorable customer experience, customer service representatives must make a connection with their customers. In this chapter, we explore how businesses can maximize their customer service skills by finding ways to connect with their customers.
 

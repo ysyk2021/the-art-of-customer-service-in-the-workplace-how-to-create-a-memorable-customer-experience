@@ -1,5 +1,3 @@
-Addressing Limiting Beliefs
-===================================================================================
 
 Many businesses struggle to deliver excellent customer service because of limiting beliefs or negative attitudes towards customer service. In this chapter, we explore the power of customer service and address common limiting beliefs that can hinder the delivery of exceptional customer experiences.
 

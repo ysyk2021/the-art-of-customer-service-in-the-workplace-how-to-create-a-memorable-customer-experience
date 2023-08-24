@@ -1,5 +1,3 @@
-Developing Empathy and Compassion Through Customer Service
-============================================================================================================
 
 Developing empathy and compassion towards customers is a critical aspect of delivering exceptional customer service. In this chapter, we explore the process of developing empathy and compassion through customer service and how it can lead to a memorable customer experience.
 

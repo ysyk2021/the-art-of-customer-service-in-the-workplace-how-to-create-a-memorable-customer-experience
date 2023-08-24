@@ -1,5 +1,3 @@
-Tracking Progress and Measuring Results
-===================================================================================================
 
 To deliver exceptional customer service, businesses need to continuously track and measure their progress. In this chapter, we will explore how businesses can measure results and learn from their customer service experience.
 

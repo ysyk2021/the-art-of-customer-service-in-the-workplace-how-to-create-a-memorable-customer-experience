@@ -1,5 +1,3 @@
-Fostering a Growth Mindset
-==============================================================================
 
 Resistance to change is common, and managing resistance to customer service is no exception. In this chapter, we explore how businesses can foster a growth mindset to overcome resistance and promote a culture that prioritizes exceptional customer service.
 

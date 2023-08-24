@@ -1,5 +1,3 @@
-Utilizing Positive Self-Talk and Visualization
-================================================================================================
 
 Developing a customer service mindset is essential for delivering exceptional customer service. In this chapter, we explore how businesses can develop a positive mindset through the use of self-talk and visualization techniques.
 

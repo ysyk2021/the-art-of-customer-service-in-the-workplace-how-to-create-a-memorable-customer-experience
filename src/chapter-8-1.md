@@ -1,5 +1,3 @@
-Encouraging Proactive Customer Service Across the Organization
-=================================================================================================================
 
 Creating a culture of customer service is essential for businesses that want to provide exceptional customer experiences. In this chapter, we will explore strategies for encouraging proactive customer service across the organization.
 

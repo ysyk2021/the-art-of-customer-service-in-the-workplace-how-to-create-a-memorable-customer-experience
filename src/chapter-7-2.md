@@ -1,5 +1,3 @@
-Developing Strategies for Overcoming Resistance
-===================================================================================================
 
 Resistance to customer service can manifest in different forms including lack of support from management, resistance from employees, or negative attitudes towards customers. In this chapter, we explore how businesses can manage resistance to customer service by developing strategies that overcome resistance and promote a culture that prioritizes exceptional service.
 

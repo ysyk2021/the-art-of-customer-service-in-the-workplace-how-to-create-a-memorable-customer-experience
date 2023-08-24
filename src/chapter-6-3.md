@@ -1,5 +1,3 @@
-Utilizing Feedback and Coaching
-===================================================================================
 
 Developing customer service skills is an ongoing process that requires dedication and effort. In this chapter, we explore how businesses can utilize feedback and coaching to improve their customer service skills and create a memorable customer experience for their customers.
 

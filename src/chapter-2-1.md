@@ -1,5 +1,3 @@
-Overview of Customer Service
-==================================================================
 
 In today's competitive business landscape, providing exceptional customer service is essential to standing out from the crowd and building long-term customer relationships. In this chapter, we will define customer service and provide an overview of its importance in today's business world.
 

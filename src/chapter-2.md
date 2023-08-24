@@ -1,5 +1,3 @@
-Chapter 2: Defining Customer Service
-====================================
 
 Customer service is a critical component of any successful business. In this chapter, we will explore the fundamentals of customer service, including the science behind effective customer service and best practices for assessing your personal approach to customer service.
 

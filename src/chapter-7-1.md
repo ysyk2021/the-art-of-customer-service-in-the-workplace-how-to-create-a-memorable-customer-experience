@@ -1,5 +1,3 @@
-Identifying Common Sources of Resistance to Customer Service
-================================================================================================================
 
 Resistance to customer service is common in many workplaces, especially when new processes or methodologies are introduced. In this chapter, we will explore common sources of resistance to customer service and strategies for managing them.
 

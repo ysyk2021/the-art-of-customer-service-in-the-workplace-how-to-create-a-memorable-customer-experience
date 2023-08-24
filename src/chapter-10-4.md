@@ -1,5 +1,3 @@
-Adapting to Changes in the Workplace
-================================================================================================
 
 In order to continuously improve the customer experience, it's important to measure results and learn from experience. By tracking key metrics and soliciting feedback, businesses can identify areas for improvement and make data-driven decisions. In this chapter, we will discuss strategies for measuring customer service results and adapting to changes in the workplace.
 

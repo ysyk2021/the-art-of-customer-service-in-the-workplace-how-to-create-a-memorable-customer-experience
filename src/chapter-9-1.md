@@ -1,5 +1,3 @@
-Identifying Customer Service Technologies and Resources
-==============================================================================================================
 
 Technology has revolutionized the way businesses deliver customer service. In this chapter, we will discuss some of the most useful customer service technologies and resources available to businesses today.
 

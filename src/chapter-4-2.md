@@ -1,5 +1,3 @@
-Recognizing How Customer Service Contributes to Success
-===============================================================================================================
 
 Customer service is a critical component of business success. In this chapter, we explore the power of customer service and how it contributes to the success of businesses.
 

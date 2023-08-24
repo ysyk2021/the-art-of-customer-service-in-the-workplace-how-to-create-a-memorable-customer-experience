@@ -1,5 +1,3 @@
-Common Misconceptions About Customer Service
-=====================================================================
 
 Customer service is a critical component of any successful business, but it's often misunderstood. In this chapter, we will explore common misconceptions about customer service and why they are misleading.
 

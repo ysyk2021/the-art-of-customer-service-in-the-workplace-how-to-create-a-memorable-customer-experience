@@ -1,5 +1,3 @@
-Communicating Effectively
-=============================================================================
 
 Effective communication is a critical component of providing exceptional customer service. In this chapter, we will explore strategies for communicating effectively with customers to create a positive experience.
 
