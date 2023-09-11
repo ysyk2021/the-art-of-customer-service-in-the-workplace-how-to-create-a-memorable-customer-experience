@@ -1,5 +1,4 @@
-Chapter 7: Identifying Common Sources of Resistance to Customer Service
-=======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the common sources of resistance to customer service and how to address them effectively. By understanding these sources, individuals can overcome barriers and create a culture that embraces exceptional customer service.
 

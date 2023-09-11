@@ -1,5 +1,4 @@
-Chapter 8: Developing Strategies for Overcoming Resistance
-==========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore effective strategies for overcoming resistance to customer service in the workplace. By understanding and addressing resistance, individuals can create a culture that embraces exceptional customer service and ensures memorable customer experiences.
 

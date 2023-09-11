@@ -1,5 +1,4 @@
-Chapter 6: Adapting to Changes in the Workplace
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of adapting to changes in the workplace to create a memorable customer experience. The ability to embrace change and navigate through transitions is vital in today's fast-paced business environment. By adopting a flexible mindset and proactively adjusting to new dynamics, individuals can thrive and deliver exceptional service.
 

@@ -1,5 +1,4 @@
-Chapter 6: Assessing Your Personal Approach to Customer Service
-===============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of self-reflection and assessment in developing a personal approach to customer service. By evaluating your strengths, weaknesses, and areas for improvement, you can enhance your skills and create a more memorable customer experience.
 

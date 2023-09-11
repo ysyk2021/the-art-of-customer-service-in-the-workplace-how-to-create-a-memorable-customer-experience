@@ -1,5 +1,4 @@
-Chapter 3: The Benefits of Focusing on Customer Service
-=======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the numerous benefits that organizations can gain by prioritizing and focusing on exceptional customer service. By understanding these benefits, leaders can recognize the value of investing in customer service initiatives and create a culture that embraces superior customer experiences.
 

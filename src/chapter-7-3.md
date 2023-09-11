@@ -1,5 +1,4 @@
-Chapter 12: Addressing Fear and Uncertainty
-===========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for addressing fear and uncertainty in the context of customer service. By understanding and alleviating these concerns, individuals can create a supportive and reassuring environment that leads to memorable customer experiences.
 

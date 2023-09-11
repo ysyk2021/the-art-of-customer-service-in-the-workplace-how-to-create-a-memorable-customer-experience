@@ -1,5 +1,4 @@
-Chapter 6: Providing Training and Professional Development Opportunities
-========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the significance of providing training and professional development opportunities in creating a memorable customer experience. Investing in the growth and skill development of employees enables them to deliver exceptional service, stay motivated, and adapt to evolving customer needs.
 

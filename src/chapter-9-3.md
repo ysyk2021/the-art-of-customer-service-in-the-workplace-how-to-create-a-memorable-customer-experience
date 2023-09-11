@@ -1,5 +1,4 @@
-Chapter 10: Fostering Accessibility and Inclusivity
-===================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will discuss the importance of fostering accessibility and inclusivity in customer service to create a memorable experience for all individuals. By removing barriers and embracing diversity, businesses can ensure that every customer feels valued and included.
 

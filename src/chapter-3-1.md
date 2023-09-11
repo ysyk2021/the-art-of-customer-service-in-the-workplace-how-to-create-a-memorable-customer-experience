@@ -1,5 +1,4 @@
-Chapter 6: Techniques for Cultivating a Customer Service Mindset
-================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore various techniques for cultivating a customer service mindset. By adopting these techniques, individuals can develop the necessary attitudes, behaviors, and skills to consistently deliver exceptional customer service and create memorable experiences.
 

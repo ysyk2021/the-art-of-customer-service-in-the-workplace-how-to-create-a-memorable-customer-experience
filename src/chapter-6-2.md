@@ -1,5 +1,4 @@
-Chapter 6: Developing Strategies for Creating a Memorable Customer Experience
-=============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies and best practices for creating a memorable customer experience in the workplace. By focusing on customer-centric approaches and implementing effective strategies, organizations can delight customers, foster loyalty, and differentiate themselves from competitors.
 

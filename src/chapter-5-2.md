@@ -1,5 +1,4 @@
-Chapter 10: Finding Ways to Connect with Customers
-==================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore various strategies for connecting with customers on a deeper level to create memorable experiences. By fostering meaningful connections, individuals can build rapport, gain trust, and deliver exceptional customer service.
 

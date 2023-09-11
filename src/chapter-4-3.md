@@ -1,5 +1,4 @@
-Chapter 10: Analyzing the Impact of Customer Service on Individuals and Organizations
-=====================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the profound impact that customer service has on both individuals and organizations. By understanding and analyzing this impact, individuals can recognize the value of exceptional customer service, and organizations can appreciate its significance in driving success.
 

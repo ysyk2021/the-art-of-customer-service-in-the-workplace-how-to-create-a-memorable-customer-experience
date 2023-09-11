@@ -1,5 +1,4 @@
-Chapter 12: Fostering a Growth Mindset
-======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of fostering a growth mindset in creating a memorable customer experience. By adopting a mindset focused on continuous learning and improvement, individuals can enhance their skills, resilience, and ability to provide exceptional customer service.
 

@@ -1,5 +1,4 @@
-Chapter 8: Communicating Effectively
-====================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the critical role of effective communication in creating a memorable customer experience. By mastering various aspects of communication, individuals can build stronger connections, understand customer needs, and deliver exceptional service.
 

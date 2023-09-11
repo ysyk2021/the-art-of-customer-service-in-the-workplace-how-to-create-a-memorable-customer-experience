@@ -1,5 +1,4 @@
-Chapter 12: Recognizing How Customer Service Contributes to Success
-===================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the essential role that customer service plays in driving success for individuals and organizations. By recognizing the impact of customer service on various aspects of success, individuals can appreciate its significance and organizations can leverage it to achieve their goals.
 

@@ -1,5 +1,4 @@
-Chapter 8: Fostering Trust and Respect
-======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of fostering trust and respect in creating a memorable customer experience. By establishing a foundation of trust and respect, individuals can build strong relationships with customers that lead to long-term loyalty and satisfaction.
 

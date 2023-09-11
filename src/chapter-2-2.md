@@ -1,5 +1,4 @@
-Chapter 9: Understanding the Science Behind Effective Customer Service
-======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the science behind effective customer service and explore the psychological and behavioral factors that contribute to creating a memorable customer experience. By understanding these principles, individuals and organizations can refine their customer service strategies and create more impactful interactions with customers.
 

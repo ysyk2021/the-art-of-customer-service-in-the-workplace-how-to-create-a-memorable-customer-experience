@@ -1,5 +1,4 @@
-Chapter 10: Utilizing Positive Self-Talk and Visualization
-==========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the power of positive self-talk and visualization in creating a memorable customer experience. By harnessing the potential of our thoughts and mental imagery, individuals can cultivate a positive mindset and enhance their ability to provide exceptional customer service.
 

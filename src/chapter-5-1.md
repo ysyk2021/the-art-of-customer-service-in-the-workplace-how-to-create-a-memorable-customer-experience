@@ -1,5 +1,4 @@
-Chapter 4: Identifying Opportunities for Creating a Memorable Customer Experience
-=================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for identifying opportunities to create memorable customer experiences. By proactively seeking out these opportunities, individuals can go above and beyond customer expectations and leave a lasting impression.
 

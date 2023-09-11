@@ -1,5 +1,4 @@
-Chapter 8: Continuous Learning and Improvement
-==============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of continuous learning and improvement in creating a memorable customer experience. By committing to ongoing growth, individuals can enhance their skills, knowledge, and adaptability to consistently deliver exceptional customer service.
 

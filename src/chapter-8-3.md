@@ -1,5 +1,4 @@
-Chapter 8: Fostering Knowledge Sharing and Mentorship
-=====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of fostering knowledge sharing and mentorship in creating a memorable customer experience. By encouraging collaboration, learning from experienced individuals, and sharing insights, organizations can cultivate a culture of continuous improvement and deliver exceptional service.
 

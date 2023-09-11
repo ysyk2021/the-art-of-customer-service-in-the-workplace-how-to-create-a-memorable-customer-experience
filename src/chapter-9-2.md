@@ -1,5 +1,4 @@
-Chapter 8: Using Technology to Enhance the Customer Experience
-==============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the various ways technology can be utilized to enhance the customer experience and create memorable interactions. From digital platforms to automation tools, technology offers tremendous opportunities to improve efficiency, personalization, and convenience in customer service.
 

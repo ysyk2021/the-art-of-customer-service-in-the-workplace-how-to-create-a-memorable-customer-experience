@@ -1,5 +1,4 @@
-Chapter 6: Developing Empathy and Compassion Through Customer Service
-=====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of empathy and compassion in customer service and how to cultivate these qualities to create memorable customer experiences. By developing empathy and compassion, individuals can connect with customers on a deeper level, understand their needs, and provide exceptional service.
 

@@ -1,5 +1,4 @@
-Chapter 12: Identifying Customer Service Technologies and Resources
-===================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore various customer service technologies and resources that can enhance the ability to create a memorable customer experience. By leveraging these tools and platforms, individuals can streamline processes, improve efficiency, and deliver exceptional service in today's digital age.
 
